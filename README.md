@@ -15,7 +15,7 @@
 ```           
 
 
-♥ [PATIKA](https://www.patika.dev/tr)
+🪙 [PATIKA](https://www.patika.dev/tr)
 
 
 
